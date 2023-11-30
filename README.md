@@ -24,7 +24,6 @@ Muslims around the world use the Islamic calendar (also known as the Lunar or Hi
 ![Islamic Dua - Hijri Calendar - Hijri Islamic Calendar - YThe Islamic Calendar - Muslim Apps (6)](https://github.com/SultanAyubi360/Islamic-Dua-App/assets/112378013/f3079049-4af8-46ee-889c-9f319d4514ac)
 ![Islamic Dua - Hijri Calendar - Hijri Islamic Calendar - YThe Islamic Calendar - Muslim Apps (7)](https://github.com/SultanAyubi360/Islamic-Dua-App/assets/112378013/61c27319-1b1e-4fc7-bc39-bc423557fdce)
 
-
 ![Islamic Dua - Hijri Calendar - Hijri Islamic Calendar - YThe Islamic Calendar - Muslim Apps (8)](https://github.com/SultanAyubi360/Islamic-Dua-App/assets/112378013/b69fc4c1-fc91-4c98-8f35-cfd12a02f13e)
 
 
