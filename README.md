@@ -61,6 +61,6 @@ Your desired place for software development.High-quality software guaranteed.
 
 ## :tada: VISIT ME ON SOCIAL MEDIA
 
-<a href="https://www.facebook.com/profile.php?id=100093770020415&mibextid=ZbWKwL"><img src="https://www.flaticon.com/free-icon/facebook_2504903?k=1701342615547&log-in=google" width="170" height="90" /></a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
+<a href="https://www.facebook.com/profile.php?id=100093770020415&mibextid=ZbWKwL"><img src="https://static-00.iconduck.com/assets.00/facebook-icon-512x512-seb542ju.png" width="100" height="90" /></a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
 
 
