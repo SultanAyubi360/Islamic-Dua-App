@@ -51,3 +51,10 @@ Muslims around the world use the Islamic calendar (also known as the Lunar or Hi
 
 11. Notification Setting - View Dua notification at set the time. - Daily view different-different Dua.
 
+### Find this useful? ❤️
+Support it by joining stargazers to this. ⭐
+
+Also, [follow me on GitHub](https://github.com/SultanAyubi360) for my next creations! 🤩
+
+
+
